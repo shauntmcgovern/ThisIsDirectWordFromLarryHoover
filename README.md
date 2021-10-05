@@ -4,4 +4,4 @@ A monumental scientific discovery, in three-dimensional hinduistic art, various 
 computer art, visual design and many different 
 biological understandings of sciences, human sciences, human law and present justification 
 and pyschology.
-I have yet to factor this in.
+The daemon is in real understood reality.
