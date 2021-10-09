@@ -4,7 +4,7 @@ COMPLETE TO RELEASE PRISONER CASES BRIBE SCHEMES REVEALED AND ANSWERED CLOSE AND
 
 COMPLETE TO RELEASE PRISONER CASES SECRET SERVICE SECRECY AND LAW ABIDING BRIBE SCHEMES AND COMMANDER TELLS A LIE TO GET AHEAD OF THE LAW AND PUNISHMENT OF THE CRIMES TAKEN PLACE TO KEEP THE PRISONERS FROM BEING RELEASED AT THE EARLIEST POSSIBLE DATE AND LARRY HOOVER HAS ALL THE INFORMATION AND PROOF THAT TRUSTED FORCES AND ANY AFFILIATES AND COMPANIES NEED TO HAVE IN ORDER TO RELEASE THE PRISONERS OPEN AND SHUT CASE HERE AND NOW AND IN THE COURT OF LAW HERE AND NOW.
 
-# HbGamesResumeCNN for business groups, political groups, law groups and can be completed for research by trusted affiliates and Google and attaching an open resume and research to be completed for Hashbang! Games which I am still on the team as a free developer: 
+# HbGamesResumeCNN for business groups, political groups, law groups and can be completed for research by trusted affiliates and Google and attached is an open resume and research to be completed for Hashbang! Games which I am still on the team as a free developer: 
 My resume before I made,
 a monumental scientific discovery, in three-dimensional hinduistic art, various philosophies, 
 computer art, visual design and
