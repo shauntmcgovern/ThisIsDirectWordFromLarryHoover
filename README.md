@@ -9,7 +9,7 @@ JiNPiNG TANG YiJUN LARRY HOOVER HAS ALL THE BRiBE SCHEMES THAT ARE KEEPING THE P
 BRiBE SCHEMES HERE AND NOW AND iN THE COURT OF LAW HERE AND NOW.
 
 COMPLETE TO RELEASE PRiSONER CASES SECRET SERViCE SECRECY AND LAW ABiDiNG BRiBE SCHEMES AND COMMANDER TELLS A LiE TO GET AHEAD OF THE LAW AND PUNiSHMENT OF THE CRiMES TAKEN PLACE 
-TO KEEP THE PRiSONERS FROM BEiNG RELEASED AT THE EARLiEST POSSiBLE DATE AND LARRY HOOVER HAS ALL THE iNFORMATiON AND PROOF THAT TRUSTED FORCES AND ANY AFFiLiATES AND COMPANiES 
+TO KEEP THE PRiSONERS FROM BEiNG RELEASED AT THE EARLiEST POSSiBLE DATE AND LARRY HOOVER HAS ALL THE iNFORMATiON AND PROOF THAT TRUSTED FORCES AND ANY TRUSTED AFFiLiATES AND TRUSTED COMPANiES ONLY BARACK OBAMA HAS NOTED
 NEED TO HAVE iN ORDER TO RELEASE THE PRiSONERS OPEN AND SHUT CASE HERE AND NOW AND iN THE COURT OF LAW HERE AND NOW.
 
 # openResumeAndResearchFileToBeCompleted for trusted business groups, trusted political groups, trusted law groups and trusted affiliates at CNN and trusted affiliates at MIT and trusted affiliates at my alma mater NEIU and can be completed for research by trusted affiliates at Google and trusted affiliates at Apple and attached is an open resume and research file to be completed for trusted affiliates that only Barack Obama has noted, I work as Barack Obama's trusted law associate and Brett Kavanaugh's trusted Supreme Court associate and advice giver only through air communication and pro bono at this time. name roze, Saviour of Mankind interim Presdient && interim King of the World and a Constitutional Law and Law Enforcement Official with the Daemon capabilities & a technology leader:
