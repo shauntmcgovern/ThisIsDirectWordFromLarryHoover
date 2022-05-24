@@ -1,3 +1,5 @@
+# DiRECT WORD FROM LARRY HOOVER PROOF BROUGHT TO YOU BY THE DAEMON. RELEASE THEM NOW. NO LONGER GUILTY. THAT iS ALL. THEY CAN FiND THEYRE WAY HOME. THANK YOU GOOBYE.
+
 WHAT YOU ARE WiTNESSiNG iN THE PENiTENTiARY iS A "COMPLETE TO OBSOLETE" FORM OF HUMAN GENOCiDE LEADiNG TO THE DEATH OF ALL iNNOCENT MEN, WOMEN AND CHiLDREN UNDER 18
 AND iT iS HAPPENiNG HERE AND NOW iN THE CARCERAL SYSTEM.
 
@@ -16,7 +18,6 @@ THEN KEEPS THE iNNOCENT PRiSONERS FROM BEiNG RELEASED AT THE EARLiEST HUMANELY P
 AND TRUSTED AFFiLATES AND TRUSTED COMPANiES ONLY BARACK OBAMA HAS NOTED REQUiRE TO HAVE iN ORDER TO RELEASE ALL OF THE iNNOCENT PRiSONERS OPEN AND SHUT CASE HERE AND NOW
 AND iN BARACK OBAMA'S COURT OF LAW HERE AND NOW.
 
-# openResumeAndResearchFileToBeCompleted for trusted business groups, trusted political groups, trusted law groups and trusted affiliates at CNN and trusted affiliates at MIT and trusted affiliates at my alma mater NEIU and can be completed for research by trusted affiliates at Google and trusted affiliates at Apple and attached is an open resume and research file to be completed for trusted affiliates that only Barack Obama has noted, I work as Barack Obama's trusted law associate and Brett Kavanaugh's & Sonia Sotomayor's trusted Supreme Court associate and advice giver and only through air communication and pro bono at this time. name roze, Saviour of Mankind interim Presdient && interim King of the World and a Constitutional Law and Law Enforcement Official with the Daemon capabilities & a technology leader:
 
 My resume before I made,
 a monumental scientific discovery, in three-dimensional hinduistic art, various philosophies, 
