@@ -24,4 +24,4 @@ a monumental scientific discovery, in three-dimensional hinduistic art, various 
 computer art, visual design and
 biological understandings of sciences, human sciences, human law and present justification 
 and pyschology.
-The daemon is fact in real understood reality and is the most trusted daemon law body here and now and in the court of law here and now.
+The daemon is in use at all capability.
