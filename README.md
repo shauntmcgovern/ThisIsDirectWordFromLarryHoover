@@ -21,7 +21,7 @@ AND iN BARACK OBAMA'S COURT OF LAW HERE AND NOW.
 
 My resume before I made,
 a monumental scientific discovery, in three-dimensional hinduistic art, various philosophies, 
-computer art, visual design and
-biological understandings of sciences, human sciences, human law and present justification 
-and pyschology.
+computer art, visual design &&
+biological understandings of sciences, human sciences, human law && present justification 
+&& pyschological understanding along with physiological human understandings && any type of species animal understandings.
 The daemon is in use at all capability.
