@@ -24,4 +24,4 @@ a monumental scientific discovery, in three-dimensional hinduistic art, various 
 computer art, visual design &&
 biological understandings of sciences, human sciences, human law && present justification 
 && pyschological understanding along with physiological human understandings && any type of species animal understandings.
-The daemon is in use at all capability.
+The daemon is in use, in schedule && at capability && available to all innocent.
