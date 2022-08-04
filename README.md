@@ -13,5 +13,5 @@ LiES TO GET AHEAD OF THE LAW && THE PUNiSHMENT && WiLL NOT CONSEQUENTiALLY RECiE
 THEN KEEPS THE iNNOCENT PRiSONERS FROM BEiNG RELEASED AT THE EARLiEST POSSiBLE DATE && TiME && LARRY HOOVER THE LEADER OF ALL THE PRiSONERS HAS ALL THE iNFORMATiON YOU NEED && PROOF THAT THE FORCES OF GOOD && TRUSTED AFFiLATES && TRUSTED COMPANiES ONLY BARACK OBAMA 44TH PRESiDENT OF THE UNiTED STATES HAS NOTED NEED TO REQUiRE TO HAVE iN ORDER TO RELEASE ALL OF THE iNNOCENT PRiSONERS OPEN && SHUT CASES HERE && NOW && iN BARACK OBAMA'S COURT OF LAW RiTE HERE && RiTE NOW.
 
 
-My resume before I made, a monumental scientific discovery, in three-dimensionaL art of hinduism, various philosophies, computer art, visual design &&
+My resume before I made, a monumental scientific discovery, in three-dimensional art of hinduism, various philosophies, computer art, visual design &&
 biological understandings of the sciences && other human understandings of human law && present justification && some pyschological understanding along with a physiological && ontological human understanding && all of our wildlife Roze lives alongside. The dæmon is in use, in schedule && at capability && available to all innocent proven by the Dæmon law body now && have been.
