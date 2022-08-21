@@ -14,4 +14,4 @@ THEN KEEPS THE iNNOCENT PRiSONERS FROM BEiNG RELEASED AT THE EARLiEST POSSiBLE D
 
 
 My resume before I made, a monumental scientific discovery, in three-dimensional art of hinduism, various philosophies, computer art, visual design &&
-biological understandings of the sciences && other human understandings of human law && present justification && some pyschological understanding along with a physiological && ontological human understanding && all of our wildlife Roze lives alongside. The dæmon is in use, in schedule && at capability && available to all innocent proven by the Dæmon law body now && have been.
+biological understandings of the sciences && other human understandings of human law && present justification && pyschological understanding along with a physiological && ontological human understanding && all of our wildlife Roze lives alongside. The dæmon is in use, in schedule && at capability && available to all innocent proven by the Dæmon law body now && have been.
