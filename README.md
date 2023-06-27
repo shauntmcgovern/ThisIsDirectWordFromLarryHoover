@@ -6,5 +6,5 @@ BARACK HUSSEiN OBAMA, AND ONLY HiS TEAM AND ONLY HiS WORD AND CAN NOW COMPLETE A
 ENTiRE WORLD.
 
 Inside is all of the complete to release cases. All that a law body needs that is necessary to complete and secure the freedom and then the release of each and
-every prisoner that is inside the carceral system in the world. This is all that is needed and once again, all that is necessary. This is the direct word from
+every prisoner that is inside the carceral system in the world. This is all that is needed and onceagain, all that is necessary. This is the direct word from
 Larry Hoover.
