@@ -7,4 +7,6 @@ DIRECTWORDFROMLARRYHOOVER83-.t83.-x-xm-M..-x-t-m.-Qvvmm-m-.Qcm-cmm-.m-tc-cmo-LAR
 
 
 
-*https://www.instagram.com/g_eazy/*--f'"?/*https://www.instagram.com/g_eazy/*
+UPDATES*/[]'
+ABOUT:on the behalf of LH GangsterDisciples🔱this'has'been aApproved by Barack Obama44THPOTUS.<,.>{M/?T}:"'|"the'44th/President/of"the""UnitedS. Currently being housed"?/mn,.<m.>?/:;"':/{+/?'='"}:|processed by h'son, LarryHooverJUNIO/R &&/hiswife, WJ.>{S}?/:;"'Hoo"'ve"'r/evr./?sr/"':;"':"|'":'\"{H}tg/[]"'':;?/<,.>(gtggggtx.>y)):)':('Illinois-->{f}:g;"'{y 
+\\[]'
